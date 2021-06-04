@@ -5,3 +5,7 @@ Sometimes, the best personal growth book has a wizard.
 - How fiction opens your mind and can be a catalyst for growth
 - Thinking outside the box - There is a great value in learning from the greats. Cutting down on learning curve.
       - But there is something more in expanding your mind and making your own connections. 
+
+# NOTES FOR ARTICLES
+Clark Kegley - 10 Best Ideas | Outliers | Malcolm Gladwell | Book Summary
+      - Do it in 5?
